@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with professional geckoterminal sniper bot | gas-optimization + price-impact-analysis, the #1 geckoterminal sniper bot. Includes gas-optimization and
 
 
 
